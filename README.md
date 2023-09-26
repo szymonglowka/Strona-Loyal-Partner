@@ -1,0 +1,2 @@
+# Strona Loyal Partner
+ 
